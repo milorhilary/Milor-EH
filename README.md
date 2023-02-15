@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Milor
-- 👀 I’m interested in CryptoCurrency and Coding
+- 👀 I’m interested in Life and Coding
 - 🌱 I’m currently learning How to Code
 - 💞️ I’m looking to collaborate on MENTORSHIP
 - 📫 How to reach me @milor_eh
